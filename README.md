@@ -1,4 +1,4 @@
-## Hi there ✌🏽, i'm a beginner developer. 💻
+## Hi there, i'm a beginner developer. 💻✌🏽
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
